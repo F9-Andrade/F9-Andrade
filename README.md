@@ -38,8 +38,7 @@
 ---
 
 ## 📫 Como me encontrar
-- 💼 [LinkedIn](https://www.linkedin.com/) *(insira seu link)*  
-- 📧 [Seu e-mail profissional] *(opcional)*  
+- 💼 [LinkedIn - Pedro Ryan Batista de Andrade](https://www.linkedin.com/in/pedro-ryan-batista-de-andrade-2a79a8305/)  
 
 ---
 
